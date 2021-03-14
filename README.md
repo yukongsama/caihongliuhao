@@ -20,6 +20,7 @@
 
 
 ## 四.公司标志
+![0V08K_OA%6DH7GA0{@JDY%D](https://user-images.githubusercontent.com/80244011/111073057-2a47f400-8518-11eb-9112-cef077a2ca4c.png)
 
 ## 五.公司愿景
 #### 携手奋进，共创未来。
