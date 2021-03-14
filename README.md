@@ -20,7 +20,6 @@
 
 
 ## 四.公司标志
-# ![0V08K_OA%6DH7GA0{@JDY%D](https://user-images.githubusercontent.com/80244011/111072892-83635800-8517-11eb-8e79-ba3ad9adab14.png)
 
 
 
